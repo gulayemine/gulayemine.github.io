@@ -1,1 +1,0 @@
-# gulayemine.github.io
